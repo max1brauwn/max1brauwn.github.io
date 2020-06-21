@@ -1,1 +1,2 @@
-Hier entsteht gerade eine Webseite zu meinem Lieblingscharakter!
+Kurz gefasst.
+Mein Lieblingscharakter ist ein Person, der als Sanguiniker beschreibt wurde.
